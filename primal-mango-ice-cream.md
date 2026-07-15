@@ -56,10 +56,10 @@ Makes about 1 quart.
 ### Step 4 — Temper the eggs (don’t scramble them)
 1. While whisking the yolk mixture constantly, slowly drizzle in the hot milk/cream, a little at a time.
 2. Once about half the hot dairy is in, pour the rest in while still whisking.
-3. Pour everything back into the saucepan.
+3. Pour that mixture **back into the same saucepan** you warmed the dairy in. Same pot is fine — that’s the normal method. (A different clean pot works too if you prefer; no functional difference.)
 
 ### Step 5 — Cook the custard
-1. Put the pan on **low** heat.
+1. Put that same pan on **low** heat.
 2. Stir constantly with a spatula, scraping the bottom and corners.
 3. Cook until the custard thickens enough to **coat the back of a spoon** (you can draw a clean line with your finger through the coating). Aim for about **170–175°F** if you have a thermometer.
 4. Pull it off heat as soon as it’s there. Do **not** boil or you’ll get sweet scrambled eggs.
